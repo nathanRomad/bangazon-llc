@@ -54,7 +54,7 @@
 >
 > You finish writing your notes, smile, and say, "I think I have all I need to get an initial version for you to see and give me feedback. It was so lovely to meet you, Karen."
 >
-> She stands again with Gentry, and replies, "Likewise, and you can call me Kari. My son has told me about the "Karen" memory going around the internet. I don't want people to think I'm a Karen."
+> She stands again with Gentry, and replies, "Likewise, and you can call me Kari. My son has told me about the "Karen" memes going around the internet. I don't want people to think I'm a Karen."
 >
 > _"Did she mean meme?"_ you think to yourself.
 >
